@@ -1,2 +1,2 @@
-# for my loves [zhangyifan](https://weixiaojie.github.io/love) 
+# for my lover [zhangyifan](https://weixiaojie.github.io/love)
 
